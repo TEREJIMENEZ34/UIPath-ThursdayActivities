@@ -1,0 +1,2 @@
+
+Emrakul was banned because she ended games too easily when cast. Games could be won after she was cast but it was extremely difficult to do so. When you played against an Emrakul deck she was always looming over the game and as soon as she was cast, the usually came to an end.
